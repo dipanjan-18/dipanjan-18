@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Dipanjan.. 
+- 👀 I’m interested in Ethical hacking as well as Web Developing and Generative AI.. 
+- 🌱 I’m currently learning Bachelor of Computer Application (BCA) .. 
+- 💞️ I'm looking to collaborate on cybersecurity projects,website developing project, ethical hacking challenges, or open-source security tools.
+- 📫 Samantadipanjan5@gmail.com / https://www.linkedin.com/in/dipanjan-samanta-548a83290?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 😊 He/Him..
+- ⚡ I love solving critical challenges.  
